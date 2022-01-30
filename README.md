@@ -1,4 +1,4 @@
-Hello! I'm Fabio Melhado, 25yo. Product Designer, Art Director and Social Media<br>
+Hello! I'm Fabio Melhado, 26yo. Product Designer, Art Director and Social Media<br>
 with 6+ years of experience in the management of the complete design process,<br>
 from brainstorming to delivery.
 
